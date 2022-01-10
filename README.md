@@ -10,10 +10,15 @@ Join us on Discord -> https://discord.gg/98SmyVmaPH
 **Worlds under construction 🏗**
 
 🛑 NoBullyingPls
+
 👻 SSRandoms
+
 👨‍💻VRDevsInviteOnly
+
 🥳 Byee2021InviteOnly
+
 🤴 WorldMgmtInviteOnly
+
 
 **Where being yourself is fun**
 Come find the worlds and friends that get you! There's plenty of interesting people from all walks of life so you're sure to find a group that truly connects with you.
