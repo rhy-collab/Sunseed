@@ -13,7 +13,7 @@ Join us on Discord -> https://discord.gg/98SmyVmaPH
 
 👻 SSRandoms
 
-👨‍💻VRDevsInviteOnly
+👨‍💻VRCreatorsInviteOnly
 
 🥳 Byee2021InviteOnly
 
