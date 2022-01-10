@@ -7,7 +7,8 @@ Where you can feel safe and comfortable being yourself. Where you can meet the c
 
 Join us on Discord -> https://discord.gg/98SmyVmaPH
 
-**Worlds under construction 🏗 **
+**Worlds under construction 🏗**
+
 🛑 NoBullyingPls
 👻 SSRandoms
 👨‍💻VRDevsInviteOnly
