@@ -6,6 +6,7 @@ See you there ✌️
 Where you can feel safe and comfortable being yourself. Where you can meet the coolest people you've ever met and catch up with your closest friends all in the blink of an eye.
 
 Join us on Discord -> https://discord.gg/98SmyVmaPH
+
 Website https://bit.ly/Sunseed
 
 **Worlds under construction 🏗**
