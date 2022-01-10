@@ -7,7 +7,7 @@ Where you can feel safe and comfortable being yourself. Where you can meet the c
 
 Join us on Discord -> https://discord.gg/98SmyVmaPH
 
-Website https://bit.ly/Sunseed
+Website -> https://bit.ly/Sunseed
 
 **Worlds under construction 🏗**
 
